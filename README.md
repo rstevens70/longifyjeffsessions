@@ -1,0 +1,1 @@
+"Longify Jeff Sessions" changes all mentions of "Jeff Sessions" to "Jefferson Beauregard Sessions III, Esquire."
